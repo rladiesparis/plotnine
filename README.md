@@ -24,7 +24,9 @@ Our workshop is focused on exploring how to create and customize enticing visual
 
 ## Recording video
 
-It will be provided soon. Want to see our previous meetups? Please have a look at our [YouTube channel](https://www.youtube.com/channel/UCWTFKtW_ReLP9zmMTYjRqug/videos).
+## Recording video
+
+The recording videos is now available [here](https://www.youtube.com/watch?v=JUrRYYFDWJc).
 
 
 
