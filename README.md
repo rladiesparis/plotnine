@@ -24,8 +24,6 @@ Our workshop is focused on exploring how to create and customize enticing visual
 
 ## Recording video
 
-## Recording video
-
 The recording videos is now available [here](https://www.youtube.com/watch?v=JUrRYYFDWJc).
 
 
